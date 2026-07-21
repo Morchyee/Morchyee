@@ -10,7 +10,7 @@
 
 为什么不选太刀😢🥲😭😭😭？**切！居！登！--猫？！**  
 **Morchyee** : “LUJITUI（another long sword player）！来点太刀圣经！😮😮😭😭”  
-**LUJITUI** ：“那就来！📖 [(太刀圣经)](./LongSwordBible)”  
+**LUJITUI** ：“那就来！📖 [(太刀圣经)](./LongSwordBible.md)”  
 
 😁😁😄😄😎😎🤗🤗🥰🥰
 
